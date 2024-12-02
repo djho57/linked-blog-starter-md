@@ -1,1 +1,2 @@
-~~Set up Obsidian on all devices~~
+- ~~Set up Obsidian on all devices~~
+- 
