@@ -9,3 +9,4 @@
 - [Planet Euphoria Luka Tee](https://planeteuphoria.com/products/luka-doncic-500?variant=48645843845405&utm_medium=paid&utm_content=120211321877070021&utm_term=120207497828130021&utm_campaign=120207497828110021&utm_source=facebook)
 - [Derschutze](https://derschutze.com/?fbclid=PAZXh0bgNhZW0CMTEAAaZftljcQ4zpmj_MJVOLuQ1RlzMicosk438IHTasa04tWg76b_ckInoaiPI_aem_vdyMeE-T4otjOOEQMGqz-A) 
 - The mousepad company
+- squidhaus wifebeaters
